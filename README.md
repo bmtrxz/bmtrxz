@@ -1,0 +1,4 @@
+- 👋 Hi, I'm @bmtrxz
+- 👀 I'm interested in discord and python
+- 🌱 I am currently learning python
+- 📫 How to contact me: 7171#9930(discord), bmtrxz(tg)
